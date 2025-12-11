@@ -1,1 +1,0 @@
-# mustafakorukmez.github.io
